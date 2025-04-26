@@ -32,9 +32,9 @@ With a **65% discount**, users can access premium AI tools at a fraction of the 
 
 As of 2025, Bika AI is offering a **limited-time 65% discount** on annual subscriptions. Here are some **100% verified promo codes** you can use:  
 
-- **BIKA65** – Get **65% off** on yearly plans  
-- **AI2025** – Extra **15% off** on top of existing discounts  
-- **FREEMONTH** – **1 free month** on select subscriptions  
+- **BAGA55** – Get **65% off** on yearly plans  
+- **BAGA55** – Extra **15% off** on top of existing discounts  
+- **BAGA55** – **1 free month** on select subscriptions  
 
 These promo codes are regularly tested to ensure they work at checkout. However, discounts may vary based on ongoing promotions, so it’s best to apply them as soon as possible.  
 
